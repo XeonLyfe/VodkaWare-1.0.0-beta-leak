@@ -1,4 +1,4 @@
-# VodkaWare-1.0.0-beta-leak russian#0002 < the devs discord
+# VodkaWare-1.0.0-beta-leak neo_#8888 < the devs discord
 
 bad client just xulu with bowbomb
 
